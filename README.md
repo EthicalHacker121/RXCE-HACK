@@ -3,5 +3,4 @@ This hack perfectly works, you can see the video on youtube from here...  https:
 
 For the hack-->
 please contact on telegram 
-1. https://t.me/rxcehack67
-2. https://t.me/EthicalExpert0
+1. https://t.me/EthicalExpert0
